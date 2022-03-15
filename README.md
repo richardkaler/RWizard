@@ -1,2 +1,2 @@
 # RWizard
-I'm fresh. We're all fresh. 
+Just getting started. Check back soon ... 
